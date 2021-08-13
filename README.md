@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @davidmaxter69
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in many things
+- 🌱 I’m currently learning all
+- 💞️ I’m looking to collaborate good proyet
 - 📫 How to reach me : davidmaxter69@gmail.com
 
 <!---
